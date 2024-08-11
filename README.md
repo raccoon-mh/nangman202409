@@ -1,4 +1,4 @@
-[ttps://forms.gle/djzZvCcKM2RbCi5B8](https://forms.gle/djzZvCcKM2RbCi5B8)
+[https://forms.gle/djzZvCcKM2RbCi5B8](https://forms.gle/djzZvCcKM2RbCi5B8)
 신청서 링크! 🙂
 
 - ✅ 신청기간 : 8월 13일(화) 까지 꼭 구글폼 작성!!
